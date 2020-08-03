@@ -1,6 +1,6 @@
 * 27
   - ms
-  - :kissing_closed_eyes:
+  - :thumbsup: fk
   
 1. 29
     1. kkisl
