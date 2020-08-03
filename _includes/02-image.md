@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![gghhghgtuyuii](https://media.gettyimages.com/photos/global-communication-network-picture-id1038383026?s=2048x2048)
