@@ -1,1 +1,1 @@
-![ffgggnnnn](https://www.google.com/search?q=images&sxsrf=ALeKk02d7zpsUKvTyizWWiTitgYgQiRGBg:1596435489782&tbm=isch&source=iu&ictx=1&fir=a9B7raWE3PxoBM%252CezcoKoowmsJC7M%252C_&vet=1&usg=AI4_-kT5Wzf4-zW6RQc7yR3GKqFMC2wU7Q&sa=X&ved=2ahUKEwidvJnSsf7qAhVSwzgGHRVIAAkQ9QEwAHoECAcQMA#imgrc=a9B7raWE3PxoBM)
+![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
